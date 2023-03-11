@@ -1,1 +1,1 @@
-# CV Daniel Sajdak
+# cv-daniel-sajdak
